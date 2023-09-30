@@ -6,7 +6,7 @@ As a former Graphic Designer, I'll always have a soft spot for design. The space
 
 > If you're interested in the work I do, please consider sponsoring me on GitHub!
 
-Find me on <a rel="me" href="https://mas.to/@nmoo">Mastodon</a>.
+Find me on <a rel="me" href="https://mas.to/@JulianCBR">Mastodon</a>.
 
 ---
 
